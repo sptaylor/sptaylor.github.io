@@ -1,1 +1,0 @@
-# sptaylor.github.io
